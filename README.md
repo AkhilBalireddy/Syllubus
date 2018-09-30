@@ -1,2 +1,0 @@
-# Syllubus
-Syllubus
